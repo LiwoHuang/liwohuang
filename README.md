@@ -1,2 +1,2 @@
-Hello, my name is Liwo Huang. I am SWE student who will graduate at 2024
+Hello, my name is Liwo Huang. I am SWE student who will graduate at 2024. I ready and prepare it. GIVE ME JOB!
 
